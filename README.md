@@ -1,0 +1,1 @@
+greate wall config properties
